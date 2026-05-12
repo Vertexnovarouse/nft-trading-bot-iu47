@@ -1,4 +1,4 @@
-# 
+# AI-powered NFT Mint Bot for nft trading bot | multi-wallet-support & auto-sell offers the most advanced nft trading bot, with multi-wallet-support and auto-sell. Ideal for
 
 
 
